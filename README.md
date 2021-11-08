@@ -1,4 +1,4 @@
-## Hello... Welcome in my world!
+## Everything new attracts me...everyone challenges are welcome...satisfaction greater than conquer something that was unknown is the focus. Be in a simple or complex analysis of data, in a development behind the scenes with Backend or in satisfaction for the eyes with Frontend, or in the new and ingenious world of DevOps, here I am on here! If it's hard, it's because it has value, if it has value it's because it's good and if it's minimal... we dribble we scored the goal and went to the next dispute!
 
 - 🔭 I’m currently working on Full Stack and DevOps Enginner ...
 - 🌱 I’m currently learning Typescript ...=
